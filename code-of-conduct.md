@@ -40,6 +40,11 @@ We may expel you or issue a time-out if you break these rules.
 The decision is made by the board and can be tried at the annual general
 meeting.
 
+Cases of physical or sexual assault, or stalking, will be subject to a minimum
+penalty of 3 months time-out and pending expulsion.  The board will consider
+each situation and at its discretion may defer expulsion on a probationary
+basis for a 6 month period to follow the time-out.
+
 If you are being harassed or witness a breach of this code of conduct,
 do not hesitate to write an email to conduct@labitat.dk.
 
